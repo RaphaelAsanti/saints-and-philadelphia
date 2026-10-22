@@ -14,7 +14,7 @@ For the author, this definition is worn outwardly under a direct, specific Comma
 ### Two: The Church of Philadelphia: A Closed Assembly of One
 While the modern world conflates a "church" with a physical building or a growing corporate membership, biblical structures dictate that each of the seven churches of Revelation possesses its own distinct framework under its respective messenger. 
 
-The Church of Philadelphia, which is My Church, stands entirely distinct from the Church of Rome and all other 'churches'. It is defined by unique, rigorous protocols such as: any true member would be required to pay tithes and converse face-to-face with absolute transparency, completely devoid of duplicity. 
+The Church of Philadelphia, which is My Church, stands entirely distinct from the Church of Rome and all other 'churches'. It is defined by unique, rigorous protocols such as: any true member would be required to pay tithes and converse face-to-face with absolute transparency, completely devoid of duplicity - among other things. 
 
 Like all other churches, the Church of Philadelphia is **"members only,"** and entry into this assembly has always been **"by invitation only."** An invitation carried the strict presumption that the prospective member would fully abide by the church's unique, non-negotiable requirements. **No one has ever done so.**
 
