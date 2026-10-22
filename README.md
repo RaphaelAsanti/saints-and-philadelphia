@@ -32,5 +32,5 @@ When the author approaches a Roman "soup kitchen" or utilizes advertised charity
 
 Every church and every individual is responsible for their own obligations under God, and so am I.  No ONE is authorized to access any of the 'accoutrements' belonging to my church.  So do not even bother to ask.
 
-God Almighty handles 'Security'.
+**Steal or Intrude at your own risk.  God Almighty handles 'Security'.**
 
