@@ -30,6 +30,9 @@ Because the Church of Philadelphia has no members, I collect no tithes. Conseque
 
 When the author approaches a Roman "soup kitchen" or utilizes advertised charity services for a basic meal or a change of clothing, it is a purely practical action. **In no way does utilizing these services constitute an application for membership in their church, confer membership into my church or function as a 'merger' of services.** A clear boundary exists: I am simply a retired servant of God with a closed down church, existing as a poor and needy orphan, accessing temporary physical relief from an outside institution while remaining entirely separate from their spiritual structure.
 
+### FIVE: The Publicly Displayed Pages Here
+Because my church does not operate as a 'secret society', in fact has a protocol that includes full dissemination of information - these pages about certain things I happen to know about are offered, to the public for free.
+
 Every church and every individual is responsible for their own obligations under God, and so am I.  No ONE is authorized to access any of the 'accoutrements' belonging to my church.  So do not even bother to ask.
 
 **Steal or Intrude at your own risk.  God Almighty handles 'Security'.**
