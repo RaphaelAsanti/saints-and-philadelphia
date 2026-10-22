@@ -28,7 +28,7 @@ Furthermore, severe disruptions have occurred involving outsiders disputing over
 ### Four: The Distinction of the Poor and Needy Sovereign Servant
 Because the Church of Philadelphia has no members, I collect no tithes. Consequently, the author functions in the physical world as a poor and needy individual, managing the stark realities of material lack without external financial sustainability. 
 
-When the author approaches a Roman "soup kitchen" or utilizes advertised charity services for a basic meal or a change of clothing, it is a purely practical action. **In no way does utilizing these services constitute an application for membership in their church or confer membership into my church.** A clear boundary exists: I am simply a retired servant of God with a closed down church, existing as a poor and needy orphan, accessing temporary physical relief from an outside institution while remaining entirely separate from their spiritual structure.
+When the author approaches a Roman "soup kitchen" or utilizes advertised charity services for a basic meal or a change of clothing, it is a purely practical action. **In no way does utilizing these services constitute an application for membership in their church, confer membership into my church or function as a 'merger' of services.** A clear boundary exists: I am simply a retired servant of God with a closed down church, existing as a poor and needy orphan, accessing temporary physical relief from an outside institution while remaining entirely separate from their spiritual structure.
 
 Every church is responsible for their own obligations under God, and so am I.
 
