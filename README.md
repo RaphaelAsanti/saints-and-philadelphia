@@ -44,15 +44,25 @@ My church had (and still has) very simple but absolutely non-negotiable requirem
 Make no mistake.  I have suffered many wrongs, but one thing I will **NEVER** suffer from is the Stockholm Syndrome.
 
 • Exodus 21:16
+
 • Deuteronomy 24:7
+
 • Exodus 22:22-24
+
 •Numbers 15:30-31
+
 •Matthew 7:21
+
 •Hebrews 10:26-29
+
 •2 Peter 2:20-21
+
 •Surah Al-Ma'idah 5:108
+
 •Surah Al-Ma'idah 5:13
+
 •Surah Muhammad 47:33
+
 •Surah An-Nisa 4:14
 
 ### FIVE: The Publicly Displayed Pages Here
