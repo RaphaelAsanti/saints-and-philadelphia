@@ -41,6 +41,17 @@ My church had (and still has) very simple but absolutely non-negotiable requirem
 
 *(I've played enough poker in my life to know that, if they do not let me go my own way it's because they have no intention whatsoever of obeying the Mizpah decreed by God.)*
 
+• Exodus 21:16
+• Deuteronomy 24:7
+• Exodus 22:22-24
+•Numbers 15:30-31
+•Hebrews 10:26-29
+•2 Peter 2:20-21
+•Surah Al-Ma'idah 5:108
+•Surah Al-Ma'idah 5:13
+•Surah Muhammad 47:33
+•Surah An-Nisa 4:14
+
 ### FIVE: The Publicly Displayed Pages Here
 
 Every church and every individual is responsible for their own obligations under God, and so am I.  
