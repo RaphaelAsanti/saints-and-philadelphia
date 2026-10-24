@@ -35,7 +35,7 @@ When the author approaches a Roman "soup kitchen" or utilizes advertised charity
 
 **No ONE is authorized to access any of the 'accoutrements' belonging to my church.**  So do not even bother to ask.  
 
-My church had (and still has) very simple but absolutely non-negotiable requirements for admission.  The requirements have never been met by anyone so, again: **The church of Philadelphia is CLOSED to everyone**. Do not mistake my own lack of hostility or common courtesy as an invitation to my church; in the same way I will not mistake being left a little garbage to eat, or a dollar or two from a random passerby for actual kindness, generosity or brotherly love.
+My church had (and still has) very simple but absolutely non-negotiable requirements for admission.  The requirements have never been met by anyone so, again: **The church of Philadelphia is CLOSED to everyone**. Do not mistake my own lack of hostility or common courtesy as an invitation to my church; in the same way I will not mistake being left a little garbage to eat, or a dollar or two from a random passerby for actual kindness, generosity and brotherly love.
 
 **Steal or Intrude at your own risk.  God Almighty handles 'Security'.  He will handle your permanent dismemberment, not me.**
 
