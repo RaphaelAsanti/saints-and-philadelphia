@@ -10,7 +10,7 @@ As established by divine parameters, a saint is defined purely by being sanctifi
 For the author, this definition is worn outwardly under a direct, specific Command by God: wearing a "Saints" shirt featuring a fleur-de-lis shaped like wheat. This garment is worn for one reason only—God told me to wear one when I can. It serves  a dual purpose:
 
 1. It serves as a visual announcement to the "Roman" church that the author carries no hostility toward them as some other 'churches' do.  It does NOT indicate my membership or desire for membership in the Roman Church.
-2. It explicitly defines the author’s identity as a 'Saint', exactly as commanded by God.  If I am lying about this, I'm fully aware that God's Own Wrath would be upon me.
+2. It explicitly defines the author’s identity as a 'Saint', exactly as commanded by God. I am fully aware that God's Own Wrath would be upon me if I am lying about this.
 
 ### Two: The Church of Philadelphia: A Closed Assembly of One
 While the modern world conflates a "church" with a physical building or a growing corporate membership, biblical structures dictate that each of the seven churches of Revelation possesses its own distinct framework under its respective messenger. 
