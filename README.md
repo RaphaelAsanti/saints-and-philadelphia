@@ -1,6 +1,6 @@
 # Clarification on Identity, Church Structure, and Boundaries: A Personal Note
 
-*This standalone note provides an absolute clarification regarding the nature of sainthood, the unique, closed structure of the Church of Philadelphia, and the separation between utilizing basic services and spiritual alignment.*
+*This standalone note provides an absolute clarification regarding the definition of sainthood, the unique, closed structure of the Church of Philadelphia, and the separation between utilizing basic services and spiritual alignment.*
 
 ---
 
