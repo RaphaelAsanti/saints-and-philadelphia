@@ -39,7 +39,7 @@ My church had (and still has) very simple but absolutely non-negotiable requirem
 
 **Steal or Intrude at your own risk.  God Almighty handles 'Security'.  He will handle your permanent dismemberment, not me.**
 
-*(I've played enough poker in my life to know that, if they do not let me go my own way it's because they have no intention whatsoever of obeying the Mizpah decreed by God.)*
+*(I've played enough poker in my life to know that, if they do not let me go my own way it's because they have no intention whatsoever of obeying the Mizpah decreed by God or the boundaries that are established.)*
 
 Make no mistake.  I have suffered many wrongs, but one thing I will **NEVER** suffer from is the Stockholm Syndrome.
 
