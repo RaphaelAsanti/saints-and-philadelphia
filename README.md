@@ -24,22 +24,25 @@ Because of these failures to abide, **the Church of Philadelphia remains a commu
 ### Three: The Rejected Offers and Outside Disruptions
 In the past, a hand of friendship was extended to certain individuals at God Almighty's direct request to offer them potential membership through this required path of invitation. However, they all declined to fulfill the mandatory first requirement of speaking face-to-face without duplicity and thus never proceeded to the next steps toward qualification. Instead, some severely misinterpreted the gesture, treating it as an invitation to intrude and try to "run the church"—which it absolutely was not. Others even imagined it to be a "marriage proposal," an assumption that is patently ridiculous.
 
-Furthermore, severe disruptions have occurred involving outsiders disputing over the policies, leadership and direction of my Church. This behavior is entirely nonsensical and wrong. It would be equivalent to an outsider walking into a Catholic mass, grabbing the microphone from the priest, and declaring himself the new Pope and announcing changes to their worship services; which is of course, patently ridiculous.
+Furthermore, severe disruptions have occurred involving outsiders disputing over the policies, leadership and direction of my Church. This behavior is entirely nonsensical and wrong. It would be equivalent to an outsider walking into a Catholic mass, grabbing the microphone from the priest, declaring himself to be the new Pope and announcing changes to their worship services; which is of course, patently ridiculous.
 
 Each church retains its own sovereign protocols, methods, and boundaries. For the Church of Philadelphia, these boundaries are completely non-negotiable, and **God Almighty Himself has permanently declared the Church of Philadelphia closed to any new members**.
 
 ### Four: The Distinction of the Poor and Needy Sovereign Servant
 Because the Church of Philadelphia has no members, I collect no tithes. Consequently, the author functions in the physical world as a poor and needy individual, managing the stark realities of material lack without external financial sustainability. 
 
-When the author approaches a Roman "soup kitchen" or utilizes advertised charity, business and other public services for a basic meal a change of clothing or other basic necessities, it is a purely practical action. **In no way does utilizing these services constitute an application for membership in their church, confer membership into my church or function as a 'merger' of services.** A clear boundary exists: I am simply a retired servant of God with a closed down church, existing as a poor and needy orphan, accessing temporary physical relief from an outside institution while remaining entirely separate from their spiritual structure.
+When the author approaches a Roman "soup kitchen" or utilizes advertised charity, business and other public services for a basic meal, a change of clothing or other basic necessities, it is a purely practical action. **In no way does utilizing these services constitute an application for membership in their church, confer membership into my church or function as a 'merger' of services.** A clear boundary exists: I am simply a retired servant of God with a closed down church, existing as a poor and needy orphan, accessing temporary physical relief from an outside institution while remaining entirely separate from their spiritual structure.
 
-Every church and every individual is responsible for their own obligations under God, and so am I.  **No ONE is authorized to access any of the 'accoutrements' belonging to my church.**  So do not even bother to ask.  
+**No ONE is authorized to access any of the 'accoutrements' belonging to my church.**  So do not even bother to ask.  
 
 My church had (and still has) very simple but absolutely non-negotiable requirements for admission.  The requirements have never been met by anyone so, again: **The church of Philadelphia is CLOSED to everyone**. Do not mistake my own lack of hostility or common courtesy as an invitation to my church; in the same way I will not mistake being left a little garbage to eat, or a dollar or two from a random passerby for actual kindness, generosity or brotherly love.
 
 **Steal or Intrude at your own risk.  God Almighty handles 'Security'.  He will handle your permanent dismemberment, not me.**
 
 ### FIVE: The Publicly Displayed Pages Here
+
+Every church and every individual is responsible for their own obligations under God, and so am I.  
+
 Because The Church of Philadelphia does not operate as a 'secret society', but in fact has requirements that include relaying known information - these pages about certain things I happen to know about are offered, to the public for free.
 
 
