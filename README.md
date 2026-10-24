@@ -41,10 +41,13 @@ My church had (and still has) very simple but absolutely non-negotiable requirem
 
 *(I've played enough poker in my life to know that, if they do not let me go my own way it's because they have no intention whatsoever of obeying the Mizpah decreed by God.)*
 
+Make no mistake.  I have suffered many wrongs, but one thing I will **NEVER** suffer from is the Stockholm Syndrome.
+
 • Exodus 21:16
 • Deuteronomy 24:7
 • Exodus 22:22-24
 •Numbers 15:30-31
+•Matthew 7:21
 •Hebrews 10:26-29
 •2 Peter 2:20-21
 •Surah Al-Ma'idah 5:108
