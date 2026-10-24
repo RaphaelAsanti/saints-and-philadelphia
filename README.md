@@ -5,12 +5,12 @@
 ---
 
 ### One: The Realignment of Sainthood and the Sign
-As established by divine parameters, a saint is defined purely by being sanctified, holy, and set apart by God’s exclusive decree. Human institutions hold no authority to catalog or vote on this status. 
+As established by divine parameters, a saint is defined purely by being sanctified, holy, and set apart by God’s exclusive decree. Human institutions hold no authority to catalog, vote or decide on this status. No one can declare their own self to be 'Holy and Set Apart for God' - except God.
 
 For the author, this definition is worn outwardly under a direct, specific Command by God: wearing a "Saints" shirt featuring a fleur-de-lis shaped like wheat. This garment is worn for one reason only—God told me to wear one when I can. It serves  a dual purpose:
 
 1. It serves as a visual announcement to the "Roman" church that the author carries no hostility toward them as some other 'churches' do.  It does NOT indicate my membership in the Roman Church.
-2. It explicitly defines the author’s identity as a 'Saint', exactly as commanded by God.
+2. It explicitly defines the author’s identity as a 'Saint', exactly as commanded by God.  If I am lying about this, I'm fully aware that God's Own Wrath would be upon me.
 
 ### Two: The Church of Philadelphia: A Closed Assembly of One
 While the modern world conflates a "church" with a physical building or a growing corporate membership, biblical structures dictate that each of the seven churches of Revelation possesses its own distinct framework under its respective messenger. 
@@ -19,23 +19,25 @@ The Church of Philadelphia, which is My Church, stands entirely distinct from th
 
 Like all other churches, the Church of Philadelphia is **"members only,"** and entry into this assembly has always been **"by invitation only."** An invitation carried the strict presumption that the prospective member would fully abide by the church's unique, non-negotiable requirements. **No one has ever done so.**
 
-Seeding from this reality, **the Church of Philadelphia remains a community of "Only Me."** It has no members, and it never has. Even the Archangel Michael’s request for membership was completely refused—though he frequently intrudes and attempts to violate the established Mizpah restraining order. This complete isolation remains a point of friction for outside entities, as my church is the sole repository of the music, the water, the healing, and the Holy Spirit. 
+Because of these failures to abide, **the Church of Philadelphia remains a community of "Only Me."** It has no members, and it never has. Even the Archangel Michael’s request for membership was immediately refused—though he frequently intrudes and attempts to violate the established Mizpah restraining order. This complete isolation remains a point of friction for outside entities, as my church is the sole repository of the music, the water, the healing, and the Holy Spirit. 
 
 ### Three: The Rejected Offers and Outside Disruptions
-In the past, a hand of friendship was extended to certain individuals at God Almighty's direct request to offer them potential membership through this required path of invitation. However, they all declined to fulfill the mandatory first requirement of speaking face-to-face without duplicity. Instead, some severely misinterpreted the gesture, treating it as an invitation to intrude and try to "run the church"—which it absolutely was not. Others even imagined it to be a "marriage proposal," an assumption that is patently ridiculous.
+In the past, a hand of friendship was extended to certain individuals at God Almighty's direct request to offer them potential membership through this required path of invitation. However, they all declined to fulfill the mandatory first requirement of speaking face-to-face without duplicity and thus never proceeded to the next steps toward qualification. Instead, some severely misinterpreted the gesture, treating it as an invitation to intrude and try to "run the church"—which it absolutely was not. Others even imagined it to be a "marriage proposal," an assumption that is patently ridiculous.
 
-Furthermore, severe disruptions have occurred involving outsiders disputing over the policies, leadership and direction of my Church. This behavior is entirely nonsensical and wrong. It would be equivalent to an outsider walking into a Catholic mass, grabbing the microphone from the priest, and declaring changes to their worship services. Each church retains its own sovereign protocols, methods, and boundaries. For the Church of Philadelphia, these boundaries are completely non-negotiable, and **God Almighty Himself has permanently declared the Church of Philadelphia closed to any new members**.
+Furthermore, severe disruptions have occurred involving outsiders disputing over the policies, leadership and direction of my Church. This behavior is entirely nonsensical and wrong. It would be equivalent to an outsider walking into a Catholic mass, grabbing the microphone from the priest, and declaring himself the new Pope and announcing changes to their worship services. Patently ridiculous.
+
+Each church retains its own sovereign protocols, methods, and boundaries. For the Church of Philadelphia, these boundaries are completely non-negotiable, and **God Almighty Himself has permanently declared the Church of Philadelphia closed to any new members**.
 
 ### Four: The Distinction of the Poor and Needy Sovereign Servant
 Because the Church of Philadelphia has no members, I collect no tithes. Consequently, the author functions in the physical world as a poor and needy individual, managing the stark realities of material lack without external financial sustainability. 
 
-When the author approaches a Roman "soup kitchen" or utilizes advertised charity or business and other services for a basic meal or a change of clothing or other basic necessities, it is a purely practical action. **In no way does utilizing these services constitute an application for membership in their church, confer membership into my church or function as a 'merger' of services.** A clear boundary exists: I am simply a retired servant of God with a closed down church, existing as a poor and needy orphan, accessing temporary physical relief from an outside institution while remaining entirely separate from their spiritual structure.
+When the author approaches a Roman "soup kitchen" or utilizes advertised charity, business and other public services for a basic meal or a change of clothing or other basic necessities, it is a purely practical action. **In no way does utilizing these services constitute an application for membership in their church, confer membership into my church or function as a 'merger' of services.** A clear boundary exists: I am simply a retired servant of God with a closed down church, existing as a poor and needy orphan, accessing temporary physical relief from an outside institution while remaining entirely separate from their spiritual structure.
 
 Every church and every individual is responsible for their own obligations under God, and so am I.  **No ONE is authorized to access any of the 'accoutrements' belonging to my church.**  So do not even bother to ask.  
 
-My church had (and still has) very simple but absolutely non-negotiable requirements for admission.  The requirements have never been met by anyone so, again: **The church of Philadelphia is CLOSED to everyone**. Do not mistake my own lack of hostility or common courtesy as an invitation to my church; in the same way I will not mistake being left a little garbage to eat, or a dollar or two for actual kindness, generosity or actual brotherly love.
+My church had (and still has) very simple but absolutely non-negotiable requirements for admission.  The requirements have never been met by anyone so, again: **The church of Philadelphia is CLOSED to everyone**. Do not mistake my own lack of hostility or common courtesy as an invitation to my church; in the same way I will not mistake being left a little garbage to eat, or a dollar or two for actual kindness, generosity or brotherly love.
 
-**Steal or Intrude at your own risk.  God Almighty handles 'Security'.  He will handle your permanent dismemberment.**
+**Steal or Intrude at your own risk.  God Almighty handles 'Security'.  He will handle your permanent dismemberment, not me.**
 
 ### FIVE: The Publicly Displayed Pages Here
 Because my church does not operate as a 'secret society', but in fact has a protocol that includes relaying known information - these pages about certain things I happen to know about are offered, to the public for free.
