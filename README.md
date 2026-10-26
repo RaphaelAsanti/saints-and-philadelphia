@@ -9,8 +9,8 @@
 - [3:  Disruptions & Disputes](#three-the-rejected-offers-and-outside-disruptions)
 - [4:  Poor & Needy Servant](#four-the-distinction-of-the-poor-and-needy-sovereign-servant)
 - [5:  The Pages Here](#five-the-publicly-displayed-pages-here)
-- [6:  The Problem](#six-the-problem
-- [7:  The Solution](#seven-the-solution
+- [6:  The Problem](#six-the-problem)
+- [7:  The Solution](#seven-the-solution)
 
 ### One: The Realignment of Sainthood and the Sign
 As established by divine parameters, a saint is defined purely by being sanctified, holy, and set apart by God’s exclusive decree. Human institutions hold no authority to catalog, vote or decide on this status. No one can declare their own self to be 'Holy and Set Apart for God' - except God.
