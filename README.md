@@ -75,7 +75,7 @@ The problems are numerous.
 
 *When an impure spirit comes out of a person, it goes through arid places seeking rest and does not find it. Then it says, ‘I will return to the house I left.’ When it arrives, it finds the house unoccupied, swept clean and put in order. Then it goes and takes with it seven other spirits more wicked than itself, and they go in and live there.” -- Matthew 12:43-45 (Jesus Correct Again)*
 
-- Certain angels, who shall remain nameless, (God will handle their cases) have renounced God and taken employment with Cain within the tree of Good and Evil instead are constantly attempting to intrude into my church of Philadelphia on Cain's behalf, while it's obvious that Cain could never possibly be a member of the 'Church of Brotherly Love'.
+- Certain angels, who shall remain nameless, (God will handle their cases) have renounced God and taken employment with Cain within the tree of Good and Evil instead.  They are constantly attempting to intrude into my church of Philadelphia on Cain's behalf, while it's obvious that Cain could never possibly qualify for membership in the 'Church of Brotherly Love'.
 - Other folks, who shall also remain nameless, have repeatedly announced that they will not give in, will not back down and will not give up.
 - The women have all proven that they cannot, will not, or do not know how to care for an orphan child of God -  so no new seats will be made available at the table with the breast feeders in the place I'm from.
 - Dan and Ephraim, both written off from Revelation - in their desperation - play "tag team whack a mole", sneaking into my Church.
