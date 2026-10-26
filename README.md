@@ -102,9 +102,11 @@ Once notified of the situation, not a single individual among them chose to brea
 
 Because of this, and because they feel that this is a game of freewill choices without ever following the valid Commands of their Lord, I have made my own freewill choice.  **I have requested God Almighty burn my Church of Philadelphia to the ground.**  (This does not mean I'm going to run around town with a flame thrower threatening your structures, I'm referring to my Spiritual Church of Philadelphia.)
 
-I am fully aware of exactly what this entails and I am fully aware of the consequences.  This is my best hope, my best choice, my best option and my best wish.  I am certain He will do this because it was God Almighty Himself who provided me with this solution when I asked Him to settle this matter once and for all.
+I am fully aware of exactly what this entails and I am fully aware of the consequences.  **This is my best hope, my best choice, my best option and my best wish.**  I am certain He will do this because it was God Almighty Himself who provided me with this solution when I asked Him to settle this matter once and for all.
 
 My only other request is He do this post-haste and without delay.  It's my own church to burn and it's my own nest of twigs.
+
+Referred to Allah.
 
 My Signature:
 
