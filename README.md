@@ -2,8 +2,14 @@
 
 *This standalone note provides an absolute clarification regarding the definition of sainthood, the unique, closed structure of the Church of Philadelphia, and the separation between utilizing basic services and spiritual alignment.*
 
----
+### Contents:
 
+- [1:  About Sainthood](#One: The Realignment of Sainthood and the Sign)
+- [Author](#author)
+- [Donate](#donate)
+- [Contribute](#contribute)
+- [Related pages](#related-pages)
+- 
 ### One: The Realignment of Sainthood and the Sign
 As established by divine parameters, a saint is defined purely by being sanctified, holy, and set apart by God’s exclusive decree. Human institutions hold no authority to catalog, vote or decide on this status. No one can declare their own self to be 'Holy and Set Apart for God' - except God.
 
