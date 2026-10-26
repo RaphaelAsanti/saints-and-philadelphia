@@ -104,5 +104,7 @@ I am fully aware of exactly what this entails and I am fully aware of the conseq
 My only other request is He do this post-haste and without delay.  It's my own church to burn and it's my own nest of twigs.
 
 My Signature:
+
 ?s/ Raphael E. Asanti
+
 Angel of the Church of PHiladelphia
