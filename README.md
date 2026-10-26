@@ -95,7 +95,7 @@ While I am absolutely 100% certain that God can change their 'whack a mole' game
 
 Once notified of the situation, not a single individual among them chose to break ranks, break character, brave the ascent, sit down next to me and ask "Do you think it might be possible to re-open your church of Philadelphia with me as a member?"
 
-This final fact proves two things:
+**This final fact proves two things:**
 
 1.  What is in their hearts is greed, theft, murder, sorcery, lies, lawlessness and vainglory.
 2.  There will never be a legitimate congregation in the Church of Philadelphia.
