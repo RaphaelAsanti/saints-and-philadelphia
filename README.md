@@ -4,13 +4,13 @@
 
 ### Contents:
 
-- [1:  About Sainthood](#one-the-realignment-of-sainthood-and-the-sign)
-- [2:  The Church of Philadelphia Status](#two-the-church-of-philadelphia-a-closed-assembly-of-one)
-- [3:  Disruptions & Disputes](#three-the-rejected-offers-and-outside-disruptions)
-- [4:  Poor & Needy Servant](#four-the-distinction-of-the-poor-and-needy-sovereign-servant)
-- [5:  The Pages Here](#five-the-publicly-displayed-pages-here)
-- [6:  The Problem](#six-the-problem)
-- [7:  The Solution](#seven-the-solution)
+- [1: About Sainthood](#one-the-realignment-of-sainthood-and-the-sign)
+- [2: The Church of Philadelphia Status](#two-the-church-of-philadelphia-a-closed-assembly-of-one)
+- [3: Disruptions & Disputes](#three-the-rejected-offers-and-outside-disruptions)
+- [4: Poor & Needy Servant](#four-the-distinction-of-the-poor-and-needy-sovereign-servant)
+- [5: The Pages Here](#five-the-publicly-displayed-pages-here)
+- [6: The Problem](#six-the-problem)
+- [7: The Solution](#seven-the-solution)
 
 ### One: The Realignment of Sainthood and the Sign
 As established by divine parameters, a saint is defined purely by being sanctified, holy, and set apart by God’s exclusive decree. Human institutions hold no authority to catalog, vote or decide on this status. No one can declare their own self to be 'Holy and Set Apart for God' - except God.
@@ -69,7 +69,7 @@ Every church and every individual is responsible for their own obligations under
 
 Because The Church of Philadelphia does not operate as a 'secret society', but in fact has requirements that include relaying known information - these pages about certain things I happen to know about are offered, to the public for free.
 
-### Six:  The Problem
+### Six: The Problem
 
 The problems are numerous.
 
@@ -84,7 +84,7 @@ I have personally witnessed some of them singing 'Hallelujah' and 'How Great Tho
 
 *These people honor me with their lips, but their hearts are far from me. -- Matthew 15:8*
 
-### Seven:  The Solution
+### Seven: The Solution
 
 While I am absolutely 100% certain that God can change their "whack a mole" game to "whack 'em all", the real travesty of the situation is this:
 
