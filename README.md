@@ -105,6 +105,6 @@ My only other request is He do this post-haste and without delay.  It's my own c
 
 My Signature:
 
-?s/ Raphael E. Asanti
+/S/ Raphael E. Asanti
 
 Angel of the Church of PHiladelphia
