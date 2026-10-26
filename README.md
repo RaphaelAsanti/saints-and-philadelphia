@@ -51,27 +51,17 @@ My church had (and still has) very simple but absolutely non-negotiable requirem
 
 Make no mistake.  I have suffered many wrongs, but one thing I will **NEVER** suffer from is the Stockholm Syndrome.
 
-• Exodus 21:16
-
-• Deuteronomy 24:7
-
-• Exodus 22:22-24
-
-•Numbers 15:30-31
-
-•Matthew 7:21
-
-•Hebrews 10:26-29
-
-•2 Peter 2:20-21
-
-•Surah Al-Ma'idah 5:108
-
-•Surah Al-Ma'idah 5:13
-
-•Surah Muhammad 47:33
-
-•Surah An-Nisa 4:14
+- Exodus 21:16
+- Deuteronomy 24:7
+- Exodus 22:22-24
+- Numbers 15:30-31
+- Matthew 7:21
+- Hebrews 10:26-29
+- 2 Peter 2:20-21
+- Surah Al-Ma'idah 5:108
+- Surah Al-Ma'idah 5:13
+- Surah Muhammad 47:33
+- Surah An-Nisa 4:14
 
 ### Five: The Publicly Displayed Pages Here
 
@@ -85,13 +75,10 @@ The problems are numerous.
 
 *When an impure spirit comes out of a person, it goes through arid places seeking rest and does not find it. Then it says, ‘I will return to the house I left.’ When it arrives, it finds the house unoccupied, swept clean and put in order. Then it goes and takes with it seven other spirits more wicked than itself, and they go in and live there.” -- Matthew 12:43-45 (Jesus Correct Again)*
 
-• Certain angels, who shall remain nameless, (God will handle their cases) have renounced God and taken employment with Cain within the tree of Good and Evil instead.
-
-• Other folks who shall also remain nameless have repeatedly announced that they will not give in, will not back down and will not give up.
-
-• The women have all proven that they cannot, will not, or do not know how to care for an orphan child of God -  so no new seats will be made available at the table with the breast feeders in the place I'm from.
-
-• Dan and Ephraim, both written off from Revelation - in their desperation - play "tag team whack a mole", sneaking into my Church.
+- Certain angels, who shall remain nameless, (God will handle their cases) have renounced God and taken employment with Cain within the tree of Good and Evil instead.
+- Other folks who shall also remain nameless have repeatedly announced that they will not give in, will not back down and will not give up.
+- The women have all proven that they cannot, will not, or do not know how to care for an orphan child of God -  so no new seats will be made available at the table with the breast feeders in the place I'm from.
+- Dan and Ephraim, both written off from Revelation - in their desperation - play "tag team whack a mole", sneaking into my Church.
 
 I have personally witnessed some of them singing 'Hallelujah' and 'How Great Thou Art' while intentionally defying God's Own Commands - proving the other famous words of Jesus:
 
