@@ -7,7 +7,7 @@
 - [1: About Sainthood](#one-the-realignment-of-sainthood-and-the-sign)
 - [2: The Church of Philadelphia Status](#two-the-church-of-philadelphia-a-closed-assembly-of-one)
 - [3: Disruptions & Disputes](#three-the-rejected-offers-and-outside-disruptions)
-- [4: Poor & Needy Servant](#four-the-distinction-of-the-poor-and-needy-sovereign-servant)
+- [4: The Boundary](#four-the-distinction-of-the-poor-and-needy-sovereign-servant)
 - [5: The Pages Here](#five-the-publicly-displayed-pages-here)
 - [6: The Problem](#six-the-problem)
 - [7: The Solution](#seven-the-solution)
