@@ -100,7 +100,7 @@ Once notified of the situation, not a single individual among them chose to brea
 1.  What is in their hearts is greed, theft, murder, sorcery, lies, lawlessness and vainglory.
 2.  There will never be a legitimate congregation in the Church of Philadelphia.
 
-Because of this, and because they feel that this is a game of freewill choices without ever following the valid Commands of their Lord, I have made my own freewill choice.  I have requested God Almighty burn my Church of Philadelphia to the ground.  (This does not mean I'm going to run around town with a flame thrower threatening your structures, I'm referring to my Spiritual Church of Philadelphia.)
+Because of this, and because they feel that this is a game of freewill choices without ever following the valid Commands of their Lord, I have made my own freewill choice.  **I have requested God Almighty burn my Church of Philadelphia to the ground.**  (This does not mean I'm going to run around town with a flame thrower threatening your structures, I'm referring to my Spiritual Church of Philadelphia.)
 
 I am fully aware of exactly what this entails and I am fully aware of the consequences.  This is my best hope, my best choice, my best option and my best wish.  I am certain He will do this because it was God Almighty Himself who provided me with this solution to settle this matter once and for all.
 
