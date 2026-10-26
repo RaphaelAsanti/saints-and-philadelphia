@@ -5,7 +5,7 @@
 ### Contents:
 
 - [1:  About Sainthood](#one-the-realignment-of-sainthood-and-the-sign)
-- [Author](#author)
+- [2:  The Church of Philadelphia Status](#two-the-church-of-philadelphia-a-closed-assembly-of-one)
 - [Donate](#donate)
 - [Contribute](#contribute)
 - [Related pages](#related-pages)
