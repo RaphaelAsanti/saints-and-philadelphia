@@ -104,7 +104,7 @@ I am fully aware of exactly what this entails and I am fully aware of the conseq
 1.  You don't believe me when I say it's MY Church of Philadelphia - then you have nothing to worry about.
 2.  You know it's MY Church of Philadelphia and you have your own church.  What do you care if my own closed down church burns down?  You were never going to access its accoutrements anyway.
 
-My only other request is He do this post-haste and without delay.  It's my own church to burn and it's my own nest of twigs.
+My only other request is He do this post-haste and without delay.  It is my own church to burn and it is my own nest of twigs.
 
 Referred to Allah.
 
