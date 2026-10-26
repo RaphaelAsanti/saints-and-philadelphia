@@ -99,6 +99,11 @@ Because of this, and because they feel that this is a game of freewill choices w
 
 I am fully aware of exactly what this entails and I am fully aware of the consequences.  **This is my best hope, my best choice, my best option and my best wish.**  I am certain He will do this because it was God Almighty Himself who provided me with this solution when I asked Him to settle this matter once and for all.
 
+**No one needs to concern themselves with my decision.  The reason is, only two possibilities exist from different perspectives:**
+
+1.  You don't believe me when I say it's MY Church of Philadelphia - then you have nothing to worry about.
+2.  You know it's MY Church of Philadelphia and you have your own church.  What do you care if my own closed down church burns down?  You were never going to access its accoutrements anyway.
+
 My only other request is He do this post-haste and without delay.  It's my own church to burn and it's my own nest of twigs.
 
 Referred to Allah.
