@@ -81,7 +81,7 @@ The problems are numerous.
 
 • Other folks who shall also remain nameless have repeatedly announced that they will not give in, will not back down and will not give up.
 
-• The women have proven that they cannot, will not or do not know how to care for an orphan child of God -  so no new seats will be made available at the table with the breast feeders in the place I'm from.
+• The women have all proven that they cannot, will not, or do not know how to care for an orphan child of God -  so no new seats will be made available at the table with the breast feeders in the place I'm from.
 
 • Dan and Ephraim, both written off from Revelation - in their desperation - play "tag team whack a mole", sneaking into my Church.
 
