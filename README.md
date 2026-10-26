@@ -4,7 +4,7 @@
 
 ### Contents:
 
-- [1:  About Sainthood](#One: The Realignment of Sainthood and the Sign)
+- [1:  About Sainthood](#One:-The-Realignment-of-Sainthood-and-the-Sign)
 - [Author](#author)
 - [Donate](#donate)
 - [Contribute](#contribute)
