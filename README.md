@@ -101,7 +101,7 @@ I am fully aware of exactly what this entails and I am fully aware of the conseq
 
 **No one needs to concern themselves with my decision.  The reason is, only two possibilities exist from different perspectives:**
 
-1.  You don't believe me when I say it's MY Church of Philadelphia - then you have nothing to worry about.
+1.  You don't believe me when I say it's MY Church of Philadelphia - then you ought not to worry about or concern yourself with my decision.
 2.  You know it's MY Church of Philadelphia and you have your own church.  What do you care if my own closed down church burns down?  You were never going to access its accoutrements anyway.
 
 My only other request is that He burn my church down post-haste at His earliest convenience.  It is my own church to burn and it is my own nest of twigs.
