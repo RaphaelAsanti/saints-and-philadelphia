@@ -103,8 +103,6 @@ My only other request is He do this post-haste and without delay.  It's my own c
 
 Referred to Allah.
 
-My Signature:
-
-/S/ Raphael E. Asanti
-
-Angel of the Church of Philadelphia
+My Signature:\
+/S/ Raphael E. Asanti\
+Angel of the Church of Philadelphia\
