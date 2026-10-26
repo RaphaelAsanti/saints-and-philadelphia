@@ -107,4 +107,4 @@ My Signature:
 
 /S/ Raphael E. Asanti
 
-Angel of the Church of PHiladelphia
+Angel of the Church of Philadelphia
