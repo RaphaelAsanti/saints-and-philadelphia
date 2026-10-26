@@ -105,4 +105,4 @@ Referred to Allah.
 
 **My Signature:**\
 /S/ Raphael E. Asanti\
-Angel of the Church of Philadelphia\
+Angel of the Church of Philadelphia
