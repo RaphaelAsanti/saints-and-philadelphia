@@ -71,5 +71,38 @@ Every church and every individual is responsible for their own obligations under
 
 Because The Church of Philadelphia does not operate as a 'secret society', but in fact has requirements that include relaying known information - these pages about certain things I happen to know about are offered, to the public for free.
 
+### SIX:  The Problem
 
+The problems are numerous.
 
+*When an impure spirit comes out of a person, it goes through arid places seeking rest and does not find it. Then it says, ‘I will return to the house I left.’ When it arrives, it finds the house unoccupied, swept clean and put in order. Then it goes and takes with it seven other spirits more wicked than itself, and they go in and live there.” -- Matthew 12:43-45 (Jesus Correct Again)*
+
+• Certain angels, who shall remain nameless, (God will handle their cases) have renounced God and taken employment with Cain within the tree of Good and Evil instead.
+• Other folks who shall also remain nameless have repeatedly announced that they will not give in, will not back down and will not give up.
+• The women have proven that they cannot, will not or do not know how to care for an orphan child of God -  so no new seats will be made available at the table with the breast feeders in the place I'm from.
+• Dan and Ephraim, both written off from Revelation - in their desperation - play "tag team whack a mole", sneaking into my Church.
+
+I have personally witnessed some of them singing 'Hallelujah' and 'How Great Thou Art' while intentionally defying God's Own Commands - proving the other famous words of Jesus:
+
+*These people honor me with their lips, but their hearts are far from me. -- Matthew 15:8*
+
+### SEVEN:  The Solution
+
+While I am absolutely 100% certain that God can change their 'whack a mole' game to 'whack them all', the real travesty of the situation is this:
+
+Once notified of the situation, not a single individual among them chose to break ranks, break character, brave the ascent, sit down next to me and ask "Do you think it might be possible to re-open your church of Philadelphia with me as a member?"
+
+This final fact proves two things:
+
+1.  What is in their hearts is greed, theft, murder, sorcery, lies, lawlessness and vainglory.
+2.  There will never be a legitimate congregation in the Church of Philadelphia.
+
+Because of this, and because they feel that this is a game of freewill choices without ever following the valid Commands of their Lord, I have made my own freewill choice.  I have requested God Almighty burn my Church of Philadelphia to the ground.  (This does not mean I'm going to run around town with a flame thrower threatening your structures, I'm referring to my Spiritual Church of Philadelphia.)
+
+I am fully aware of exactly what this entails and I am fully aware of the consequences.  This is my best hope, my best choice, my best option and my best wish.  I am certain He will do this because it was God Almighty Himself who provided me with this solution to settle this matter once and for all.
+
+My only other request is He do this post-haste and without delay.  It's my own church to burn and it's my own nest of twigs.
+
+My Signature:
+?s/ Raphael E. Asanti
+Angel of the Church of PHiladelphia
