@@ -111,3 +111,9 @@ Referred to Allah, who always has been - alway is - and always will be God Almig
 **My Signature:**\
 /S/ Raphael E. Asanti\
 Angel of the Church of Philadelphia
+
+**Updated:  As of Oct 28th there have been two significant fires.**
+1.  Rockingham C0unty, NC a 8 unit apartment bldg on hwy 700 was completely destroyed in a fire.
+2.  Rockinghame County, VA a Chicken house that stored cars was burned in a massive fire.
+
+The Mizpah was decreed in Rockingham County.  This says the time for repentance is finished and God's rage is burning against them.
