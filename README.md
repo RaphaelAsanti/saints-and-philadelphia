@@ -125,7 +125,7 @@ God told me more than a year ago that there would be "self important assholes wi
 
 I refuse to live in a world where I cannot mind my own business, not bothering anyone and have to worry about people lurking and waiting to take advantage of me to sneak into my Church.  **There is no cure for what ails them because the real sickness in their hearts is "greed, theft, murder, sorcery, lies, lawlessness and vainglory".**  The "Honor System" will never work with these people.
 
-We don't have any of these problems in the place where I'm from.
+They only want me dead anyway, so perhaps there's a simple solution.  We don't have any of these problems in the place where I'm from.
 
 Referred to Allah.
 
