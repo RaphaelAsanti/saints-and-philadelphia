@@ -127,8 +127,9 @@ I refuse to live in a world where I cannot mind my own business, not bothering a
 
 They only want to kill me anyway, so perhaps there's a simple solution.  We don't have any of these problems in the place where I'm from.
 
-I end this missive with a single one sentence summary of Quran chapter 76:\
-**Humans - Did they really think they would get away with this shit?**
+I end this missive with a single one sentence summary of Quran chapter 76:
+
+- **Humans - Did they really think they would get away with this shit?**
 
 Referred to Allah.
 
