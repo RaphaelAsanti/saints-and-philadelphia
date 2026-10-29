@@ -117,3 +117,11 @@ Angel of the Church of Philadelphia
 2.  Rockinghame County, VA a Chicken house that stored cars was burned in a massive fire.
 
 The Mizpah was decreed in Rockingham County.  This says the time for repentance is finished and God's rage is burning against them.
+
+God told me more than a year ago that there would be "self important assholes with their ham sandwiches" who would refuse to accept His Decrees of the end, until the end.  I was accosted by one of them this morning even while His Rage is burning against them - and while they know His Rage is burning against them.  God Almighty - Correct Again.
+
+I refuse to live in a world where I cannot mind my own business, not bothering anyone and have to worry about people lurking waiting to take advantage of me and sneak into my Church.  There is no cure for what ails them because the real sickness in their hearts is "greed, theft, murder, sorcery, lies, lawlessness and vainglory".
+
+We don't have any of these problems in the place where I'm from.
+
+Referred to Allah.
