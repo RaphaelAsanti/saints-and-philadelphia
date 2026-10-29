@@ -11,6 +11,7 @@
 - [5: The Pages Here](#five-the-publicly-displayed-pages-here)
 - [6: The Problem](#six-the-problem)
 - [7: The Solution](#seven-the-solution)
+- [Update](#update)
 
 ### One: The Realignment of Sainthood and the Sign
 As established by divine parameters, a saint is defined purely by being sanctified, holy, and set apart by God’s exclusive decree. Human institutions hold no authority to catalog, vote or decide on this status. No one can declare their own self to be 'Holy and Set Apart for God' - except God.
@@ -111,8 +112,10 @@ My only other request is that He burn my church down post-haste at His earliest 
 Referred to Allah, who always has been - alway is - and always will be God Almighty.
 
 
+### Update  
 
-**Updated:  As of Oct 28th there have been two significant fires.**
+**As of Oct 28th there have been two significant fires.**
+
 1.  Rockingham C0unty, NC a 8 unit apartment bldg on hwy 700 was completely destroyed in a fire.
 2.  Rockinghame County, VA a Chicken house that stored cars was burned in a massive fire.
 
@@ -120,7 +123,7 @@ The Mizpah was decreed in Rockingham County.  **This means the time for repentan
 
 God told me more than a year ago that there would be "self important assholes with their ham sandwiches" who would refuse to accept His Decrees of the end, until the end.  I was accosted by one of them this morning even while His Rage is burning against them - and while they know His Rage is burning against them.  God Almighty - Correct Again.
 
-I refuse to live in a world where I cannot mind my own business, not bothering anyone and have to worry about people lurking waiting to take advantage of me and sneak into my Church.  There is no cure for what ails them because the real sickness in their hearts is "greed, theft, murder, sorcery, lies, lawlessness and vainglory".
+I refuse to live in a world where I cannot mind my own business, not bothering anyone and have to worry about people lurking and waiting to take advantage of me to sneak into my Church.  There is no cure for what ails them because the real sickness in their hearts is "greed, theft, murder, sorcery, lies, lawlessness and vainglory".
 
 We don't have any of these problems in the place where I'm from.
 
