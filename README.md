@@ -76,9 +76,11 @@ The problems are numerous.
 *When an impure spirit comes out of a person, it goes through arid places seeking rest and does not find it. Then it says, ‘I will return to the house I left.’ When it arrives, it finds the house unoccupied, swept clean and put in order. Then it goes and takes with it seven other spirits more wicked than itself, and they go in and live there.” -- Matthew 12:43-45 (Jesus Correct Again)*
 
 - Certain angels, who shall remain nameless, (God will handle their cases) have renounced God and taken employment with Cain within the tree of Good and Evil instead.  They are constantly attempting to intrude into my church of Philadelphia on Cain's behalf, while it's obvious that Cain could never possibly qualify for membership in the 'Church of Brotherly Love'.
-- Other folks, who shall also remain nameless, have repeatedly announced that they will not give in, will not back down and will not give up.  *(The irony of this is, if you're the type of person who won't take 'NO' for an answer, you'd never qualify for membership in my church anyway.  It's mandatory and not arbitrary, for important reasons they'll probably never comprehend.)*
+- Other folks, who shall also remain nameless, have repeatedly announced that they will not give in, will not back down and will not give up.  
 - The women have all proven that they cannot, will not, or do not know how to care for an orphan child of God -  so no new seats will be made available at the table with the breast feeders in the place I'm from.
 - Dan and Ephraim, both written off from Revelation - in their desperation - play "tag team whack a mole", sneaking into my Church.
+
+*(The irony of this is, if you're the type of person who won't take 'NO' for an answer, you'd never qualify for membership in my church anyway.  It's mandatory and not arbitrary, for important reasons they'll probably never comprehend.)*
 
 I have personally witnessed some of them singing 'Hallelujah' and 'How Great Thou Art' while intentionally defying God's Own Commands - proving the other famous words of Jesus:
 
@@ -108,15 +110,13 @@ My only other request is that He burn my church down post-haste at His earliest 
 
 Referred to Allah, who always has been - alway is - and always will be God Almighty.
 
-**My Signature:**\
-/S/ Raphael E. Asanti\
-Angel of the Church of Philadelphia
+
 
 **Updated:  As of Oct 28th there have been two significant fires.**
 1.  Rockingham C0unty, NC a 8 unit apartment bldg on hwy 700 was completely destroyed in a fire.
 2.  Rockinghame County, VA a Chicken house that stored cars was burned in a massive fire.
 
-The Mizpah was decreed in Rockingham County.  This says the time for repentance is finished and God's rage is burning against them.
+The Mizpah was decreed in Rockingham County.  **This means the time for repentance is finished and God's rage is actively burning against them.**
 
 God told me more than a year ago that there would be "self important assholes with their ham sandwiches" who would refuse to accept His Decrees of the end, until the end.  I was accosted by one of them this morning even while His Rage is burning against them - and while they know His Rage is burning against them.  God Almighty - Correct Again.
 
@@ -125,3 +125,7 @@ I refuse to live in a world where I cannot mind my own business, not bothering a
 We don't have any of these problems in the place where I'm from.
 
 Referred to Allah.
+
+**My Signature:**\
+/S/ Raphael E. Asanti\
+Angel of the Church of Philadelphia
