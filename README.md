@@ -116,8 +116,8 @@ Referred to Allah, who always has been - alway is - and always will be God Almig
 
 **As of Oct 28th there have been two significant fires.**
 
-1.  Rockingham C0unty, NC a 8 unit apartment bldg on hwy 700 was completely destroyed in a fire.
-2.  Rockinghame County, VA a Chicken house that stored cars was burned in a massive fire.
+1.  Rockingham County, NC: An 8 unit apartment bldg on Hwy 700 was completely destroyed in a fire.
+2.  Rockinghame County, VA: A Chicken house that stored cars was burned in a massive fire.
 
 The Mizpah was decreed in Rockingham County.  **This means the time for repentance is finished and God's rage is actively burning against them.**
 
