@@ -131,8 +131,8 @@ I end this missive with a single one sentence summary of Quran chapter 76:
 
 - **Humans - Did they really think they would get away with this shit?**
 
-Referred to Allah.
-
+Referred to Allah.\
+(And whoever of them says, “I am a god besides Him,” We will reward him with Hell.)
 **My Signature:**\
 /S/ Raphael E. Asanti\
 Angel of the Church of Philadelphia
