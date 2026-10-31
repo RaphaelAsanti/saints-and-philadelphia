@@ -30,6 +30,15 @@ Like all other churches, the Church of Philadelphia is **"members only,"** and e
 
 Because of these failures to abide, **the Church of Philadelphia remains a community of "Only Me."** It has no members, and it never has. Even the Archangel Michael’s request for membership was immediately refused—though he frequently intrudes and attempts to violate the established Mizpah restraining order - just as the Archangel Gabriel's request would also be immediately refused (if he had the intestinal fortitude to ask, which he has not). This complete isolation remains a point of friction for outside entities, as my church is the sole repository of the music, the water, the healing, and the Holy Spirit. 
 
+The Church of Philadelphia stands distinct from conventional organizations through rigorous protocols, requiring absolute transparency and face-to-face communication without duplicity.
+
+**Absolute Clarification on the Core Promises:**
+To directly correct false accusations and outside claims, two non-negotiable promises are explicitly defined:
+1. **The "Saved from the Time of Testing" Promise:** God Almighty personally ensures protection against being compromised or entangled (fucked up as they call it) with outside influences, rendering any contrary claims completely false.
+2. **The "Open Door" Promise:** The literal, exclusive return pathway through the Eye of the Needle, permanently closed to outsiders.
+
+Due to outside failures to meet mandatory protocols, **the Church of Philadelphia remains a community of "Only Me,"** with no active members standing alone and apart from every other 'Church'.
+
 ### Three: The Rejected Offers and Outside Disruptions
 In the past, a hand of friendship was extended to certain individuals at God Almighty's direct request to offer them potential membership through this required path of invitation. However, they all declined to fulfill the mandatory first requirement of speaking face-to-face without duplicity and thus never proceeded to the next steps toward qualification. Instead, some severely misinterpreted the gesture, treating it as an invitation to intrude and try to "run the church"—which it absolutely was not. Others even imagined it to be a "marriage proposal," an assumption that is patently ridiculous.
 
