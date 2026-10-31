@@ -34,7 +34,7 @@ The Church of Philadelphia stands distinct from conventional organizations throu
 
 **Absolute Clarification on the Core Promises:**
 To directly correct false accusations and outside claims, two non-negotiable promises are explicitly defined:
-1. **The "Saved from the Time of Testing" Promise:** God Almighty personally ensures protection against being compromised or entangled (fucked up as they call it) with outside influences, rendering any contrary claims completely false.
+1. **The "Saved from the Time of Testing" Promise:** God Almighty personally ensures my protection against being compromised or entangled ("fucked up" as they call it) with outside influences, rendering any contrary claims completely false.
 2. **The "Open Door" Promise:** The literal, exclusive return pathway through the Eye of the Needle, permanently closed to outsiders.
 
 Due to outside failures to meet mandatory protocols, **the Church of Philadelphia remains a community of "Only Me,"** with no active members standing alone and apart from every other 'Church'.
