@@ -56,8 +56,6 @@ When the author approaches a Roman "soup kitchen" or utilizes advertised charity
 
 My church had (and still has) very simple but absolutely non-negotiable requirements for admission.  The requirements have never been met by anyone so, again: **The church of Philadelphia is CLOSED to everyone**. Do not mistake my own lack of hostility or common courtesy as an invitation to my church; in the same way I will not mistake being left a little garbage to eat, or a dollar or two from a random passerby for actual kindness, generosity and brotherly love.
 
-**Steal or Intrude at your own risk.  God Almighty handles 'Security'.  He will handle your permanent dismemberment, not me.**
-
 *(I've played enough poker in my life to know that, if they do not let me go my own way it's because they have no intention whatsoever of obeying the Mizpah decreed by God or the boundaries that are established.)*
 
 Make no mistake.  I have suffered many wrongs, but one thing I will **NEVER** suffer from is the Stockholm Syndrome.
@@ -82,6 +80,9 @@ The rule made **Mandatory** (Never Optional) is established in Chapter 24 of the
 This example is also found in the story of Lot in Sodom when the Angels came to rescue him. They knocked, they identified themselves and clearly stated their intentions.  Even after being invited in once, they offered to stay in the public square and only entered after a second invitation.
 
 **This means that the angels are held to a higher standard, not a different standard.**
+
+**Steal or Intrude at your own risk.  God Almighty handles 'Security'.  He will handle your permanent dismemberment, not me.**
+
 
 ### Five: The Publicly Displayed Pages Here
 
