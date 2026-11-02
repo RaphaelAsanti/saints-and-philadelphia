@@ -79,7 +79,7 @@ The rule made **Mandatory** (Never Optional) is established in Chapter 24 of the
 
 This example is also found in the story of Lot in Sodom when the Angels came to rescue him. They knocked, they identified themselves and clearly stated their intentions.  Even after being invited in once, they offered to stay in the public square and only entered after a second invitation.
 
-**This means that the angels are held to a higher standard, not a different standard.**
+***This means that the angels are held to a higher standard, not a different standard.***
 
 **Steal or Intrude at your own risk.  God Almighty handles 'Security'.  He will handle your permanent dismemberment, not me.**
 
