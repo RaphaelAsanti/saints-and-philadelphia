@@ -2,7 +2,7 @@
 
 *This standalone note provides an absolute clarification regarding the definition of sainthood, the unique, closed structure of the Church of Philadelphia, and the separation between utilizing basic services and spiritual alignment.*
 
-### Contents:
+## Contents:
 
 - [1: About Sainthood](#one-the-realignment-of-sainthood-and-the-sign)
 - [2: The Church of Philadelphia Status](#two-the-church-of-philadelphia-a-closed-assembly-of-one)
@@ -13,7 +13,7 @@
 - [7: The Solution](#seven-the-solution)
 - [Update](#update)
 
-### One: The Realignment of Sainthood and the Sign
+## One: The Realignment of Sainthood and the Sign
 As established by divine parameters, a saint is defined purely by being sanctified, holy, and set apart by God’s exclusive decree. Human institutions hold no authority to catalog, vote or decide on this status. No one can declare their own self to be 'Holy and Set Apart for God' - except God.
 
 For the author, this definition is worn outwardly under a direct, specific Command by God: wearing a "Saints" shirt featuring a fleur-de-lis shaped like wheat. This garment is worn for one reason only—God told me to wear one when I can. It serves  a dual purpose:
@@ -21,7 +21,7 @@ For the author, this definition is worn outwardly under a direct, specific Comma
 1. It serves as a visual announcement to the "Roman" church that the author carries no hostility toward them as some other 'churches' do.  It does NOT indicate my membership or desire for membership in the Roman Church.
 2. It explicitly defines the author’s identity as a 'Saint', exactly as commanded by God. I am fully aware that God's Own Wrath would be upon me if I am lying about this.
 
-### Two: The Church of Philadelphia: A Closed Assembly of One
+## Two: The Church of Philadelphia: A Closed Assembly of One
 While the modern world conflates a "church" with a physical building or a growing corporate membership, biblical structures dictate that each of the seven churches of Revelation possesses its own distinct framework under its respective messenger. 
 
 The Church of Philadelphia, which is My Church, stands entirely distinct from the Church of Rome and all other 'churches'. It is defined by unique, rigorous protocols such as: any true member would be required to pay tithes and converse face-to-face with absolute transparency, completely devoid of duplicity - among other things. 
