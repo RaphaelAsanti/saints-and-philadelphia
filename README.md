@@ -74,7 +74,7 @@ Make no mistake.  I have suffered many wrongs, but one thing I will **NEVER** su
 - Surah Muhammad 47:33
 - Surah An-Nisa 4:14
 
-The established rule made **mandatory** (Never Optional) is established in Chapter 24 of the Quran:
+The rule made **mandatory** (Never Optional) is established in Chapter 24 of the Quran:
 
 - You who believe! Do not enter homes other than your own, until you have asked permission and greeted their occupants. That is better for you, that you may be aware.
 - And if you find no one in them, do not enter them until you are given permission. And if it is said to you, “Turn back,” then turn back. That is more proper for you. God is aware of what you do.
