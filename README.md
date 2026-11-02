@@ -99,7 +99,7 @@ The problems are numerous.
 - Certain angels, who shall remain nameless, (God will handle their cases) have renounced God and taken employment with Cain within the tree of Good and Evil instead.  They are constantly attempting to intrude into my church of Philadelphia on Cain's behalf, while it's obvious that Cain could never possibly qualify for membership in the 'Church of Brotherly Love'.
 - Other folks, who shall also remain nameless, have repeatedly announced that they will not give in, will not back down and will not give up.  
 - The women have all proven that they cannot, will not, or do not know how to care for an orphan child of God -  so no new seats will be made available at the table with the breast feeders in the place I'm from.
-- Dan and Ephraim, both written off from Revelation - in their desperation - play "tag team whack a mole", sneaking into my Church.
+- Dan and Ephraim (AKA Phillip and John), both written off from Revelation - in their desperation - play "tag team whack a mole", sneaking into my Church.
 
 *(The irony of this is, if you're the type of person who won't take 'NO' for an answer, you'd never qualify for membership in my church anyway.  It's mandatory and not arbitrary, for important reasons they'll probably never comprehend.)*
 
