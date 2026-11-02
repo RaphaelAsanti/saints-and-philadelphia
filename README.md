@@ -77,7 +77,7 @@ The rule made **Mandatory** (Never Optional) is established in Chapter 24 of the
 - You who believe! Do not enter homes other than your own, until you have asked permission and greeted their occupants. That is better for you, that you may be aware.
 - And if you find no one in them, do not enter them until you are given permission. And if it is said to you, “Turn back,” then turn back. That is more proper for you. God is aware of what you do.
 
-This example is also found in the story of Lot in Sodom when the Angels came to rescue him. They knocked, they identified themselves and clearly stated their intentions.  Even after being invited in once, they offered to stay in the public square and only entered after a second invitation.
+This example is also found in the story of Lot in Sodom when the Angels came to rescue him. They knocked, they identified themselves and clearly stated their intentions.  Even after being invited in once, they offered to stay outside in the town square and only entered after a second invitation.
 
 ***This means that the angels are held to a higher standard, not a different standard.***
 
