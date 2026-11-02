@@ -40,14 +40,14 @@ To directly correct false accusations and outside claims, two non-negotiable pro
 
 Due to outside failures to meet mandatory protocols, **the Church of Philadelphia remains a community of "Only Me,"** with no active members standing alone and apart from every other 'Church'.
 
-### Three: The Rejected Offers and Outside Disruptions
+## Three: The Rejected Offers and Outside Disruptions
 In the past, a hand of friendship was extended to certain individuals at God Almighty's direct request to offer them potential membership through this required path of invitation. However, they all declined to fulfill the mandatory first requirement of speaking face-to-face without duplicity and thus never proceeded to the next steps toward qualification. Instead, some severely misinterpreted the gesture, treating it as an invitation to intrude and try to "run the church"—which it absolutely was not. Others even imagined it to be a "marriage proposal," an assumption that is patently ridiculous.
 
 Furthermore, severe disruptions have occurred involving outsiders disputing over the policies, leadership and direction of my Church. This behavior is entirely nonsensical and wrong. It would be equivalent to an outsider walking into a Catholic mass, grabbing the microphone from the priest, declaring himself to be the new Pope and announcing changes to their worship services; which is of course, patently ridiculous.
 
 Each church retains its own sovereign protocols, methods, and boundaries. For the Church of Philadelphia, these boundaries are completely non-negotiable, and **God Almighty Himself has permanently declared the Church of Philadelphia closed to any new members**.
 
-### Four: The Distinction of the Poor and Needy Sovereign Servant
+## Four: The Distinction of the Poor and Needy Sovereign Servant
 Because the Church of Philadelphia has no members, I collect no tithes. Consequently, the author functions in the physical world as a poor and needy individual, managing the stark realities of material lack without external financial sustainability. 
 
 When the author approaches a Roman "soup kitchen" or utilizes advertised charity, business and other public services for a basic meal, a change of clothing or other basic necessities, it is a purely practical action. **In no way does utilizing these services constitute an application for membership in their church, confer membership into my church or function as a 'merger' of services.** A clear boundary exists: I am simply a retired servant of God with a closed down church, existing as a poor and needy orphan, accessing temporary physical relief from an outside institution while remaining entirely separate from their spiritual structure.
@@ -81,18 +81,18 @@ This example is also found in the story of Lot in Sodom when the Angels came to 
 
 ***This means that the angels are held to a higher standard, not a different standard.***
 
-**THE STANDING ORDER IS "NO NOT ENTER"**
+### THE STANDING ORDER IS "NO NOT ENTER"
 
 **Steal or Intrude at your own risk.  God Almighty handles 'Security'.  He will handle your permanent dismemberment, not me.**
 
 
-### Five: The Publicly Displayed Pages Here
+## Five: The Publicly Displayed Pages Here
 
 Every church and every individual is responsible for their own obligations under God, and so am I.  
 
 Because The Church of Philadelphia does not operate as a 'secret society', but in fact has requirements that include relaying known information - these pages about certain things I happen to know about are offered, to the public for free.
 
-### Six: The Problem
+## Six: The Problem
 
 The problems are numerous.
 
@@ -110,7 +110,7 @@ I have personally witnessed some of them singing 'Hallelujah' and 'How Great Tho
 
 *These people honor me with their lips, but their hearts are far from me. -- Matthew 15:8*
 
-### Seven: The Solution
+## Seven: The Solution
 
 While I am absolutely 100% certain that God can change their "whack a mole" game to "whack 'em all", the real travesty of the situation is this:
 
@@ -135,7 +135,7 @@ My only other request is that He burn my church down post-haste at His earliest 
 Referred to Allah, who always has been - alway is - and always will be God Almighty.
 
 
-### Update  
+## Update  
 
 **As of Oct 28th there have been two significant fires.**
 
