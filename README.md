@@ -81,7 +81,7 @@ This example is also found in the story of Lot in Sodom when the Angels came to 
 
 ***This means that the angels are held to a higher standard, not a different standard.***
 
-### THE STANDING ORDER IS "EVERYONE OUT" AND "NO NOT ENTER"
+### THE STANDING ORDER IS "EVERYONE OUT" AND "DO NOT ENTER"
 
 **Steal or Intrude at your own risk.  God Almighty handles 'Security'.  He will handle your permanent dismemberment, not me.**
 
