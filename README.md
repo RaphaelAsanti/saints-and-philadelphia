@@ -167,6 +167,8 @@ I end this missive with a single one sentence summary of Quran chapter 76:
 
 - **Humans - Did they really think they would get away with this shit?**
 
+- **Everyone and everything will perish, and there will remain the Face of your Lord, Owner of Majesty and Honor.**
+
 Referred to Allah.\
 (And whoever of them says, “I am a god besides Him,” We will reward him with Hell.)
 
