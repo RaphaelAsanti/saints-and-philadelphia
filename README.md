@@ -158,7 +158,7 @@ https://www.youtube.com/watch?v=Hiy6Wd7BDSg
 
 For the record:  On a previous occasion when the intruders were intruding despite having been told to stop (they were being invited in at the 'Motahari woman's invitation) Holiness was invoked and the Coronavirus broke out.  It was the Matahari woman's fault because she continued inviting them and it was the intruders who spread the virus throughout the world.  That's how it spread so far and so fast.
 
-On that occasion, only 'Holy' was invoked.  Now it's "FULL 100% UNDILUTED HOLY".  This time the universe will burn.
+On that occasion, only 'Holy' was invoked.  Now it's "FULL 100% UNDILUTED HOLY".  This will bring about the INEVITABLE End of the entire universe.
 
 https://raphaelasanti.github.io/the-end-of-time/
 
