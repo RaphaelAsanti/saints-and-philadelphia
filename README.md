@@ -12,6 +12,7 @@
 - [6: The Problem](#six-the-problem)
 - [7: The Solution](#seven-the-solution)
 - [Update](#update)
+- [Conclusion](#conclusion)
 
 ## One: The Realignment of Sainthood and the Sign
 As established by divine parameters, a saint is defined purely by being sanctified, holy, and set apart by God’s exclusive decree. Human institutions hold no authority to catalog, vote or decide on this status. No one can declare their own self to be 'Holy and Set Apart for God' - except God.
