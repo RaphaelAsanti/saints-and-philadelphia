@@ -150,6 +150,12 @@ I refuse to live in a world where I cannot mind my own business, not bothering a
 
 They only want to kill me anyway, so perhaps there's a simple solution.  We don't have any of these problems in the place where I'm from.
 
+## Conclusion
+
+God Almighty has approved the burning down of the Church of Philadelphia.  It isn't done with a 'torch' or a 'flamethrower'.  It is accomplished by going "FULL 100% Undiluted HOLY".
+
+https://www.youtube.com/watch?v=Hiy6Wd7BDSg
+
 I end this missive with a single one sentence summary of Quran chapter 76:
 
 - **Humans - Did they really think they would get away with this shit?**
