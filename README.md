@@ -178,6 +178,6 @@ Referred to Allah.\
 Angel of the Church of Philadelphia
 
 - M 6.4 - 30 km WSW of Lata, Solomon Islands
-- M 4.8 - 26 km SW of Lata, Solomon Islands
+- M 4.8 - 26 km SW of Lata, Solomon Islands\
 Thank You, Thank You, Thank You.
 
