@@ -176,3 +176,6 @@ Referred to Allah.\
 **My Signature:**\
 /S/ Raphael E. Asanti\
 Angel of the Church of Philadelphia
+
+M 4.8 - 26 km SW of Lata, Solomon Islands - Thank You, Thank You, Thank You.
+
